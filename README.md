@@ -1,0 +1,1 @@
+https://github.com/BNB77/slozhno-sosredotochitsya-ad.git
